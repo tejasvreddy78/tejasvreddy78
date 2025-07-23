@@ -1,6 +1,6 @@
 ## Hey!! 👋✒️
 ### **I am Tejas V Reddy** ###
 
-#### I'm currently working on Web Development and Desigining. ####
+#### ECE 2025 Graduate. ####
 
 #### Cool Yo!😎✌️ ####
